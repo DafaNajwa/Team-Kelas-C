@@ -1,2 +1,2 @@
 engkau mengapa
-gi
+gigi 
