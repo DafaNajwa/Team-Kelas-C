@@ -1,0 +1,2 @@
+engkau mengapa
+gi
